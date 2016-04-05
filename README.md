@@ -1,0 +1,2 @@
+# Spotace_darbinis
+Bandymai
